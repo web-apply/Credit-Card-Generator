@@ -1,4 +1,4 @@
-# Credit-Card-Generator
+# Credit Card Generator
 Credit Card Generator, Free Check fake numbers &amp; BIN Codes Tester. You can test your credit card and create virtual new credit card for use payment apis & codes.
 
 Luhn's algorithm, named for this algorithm
