@@ -43,4 +43,4 @@ We sum up the two total results. If the result is exactly the 10th, in other wor
 
 16 + 64 = 80 (the card number is valid since 10 is the full rank). thanks
 
-Demo:  https://kopollo.github.io/Credit-Card-Generator/
+Demo:  https://github.com/web-apply/192.168.1.1
