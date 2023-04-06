@@ -43,4 +43,7 @@ We sum up the two total results. If the result is exactly the 10th, in other wor
 
 16 + 64 = 80 (the card number is valid since 10 is the full rank). thanks
 https://github.com/web-apply/Credit-Card-Generator-With-Money
-Demo:  [Credit Card Generator With Money](//google.com/https://github.com/web-apply/Credit-Card-Generator-With-Money)
+Demo:  ![Credit [Credit Card Generator With Money](https:////google.com/https://github.com/web-apply/Credit-Card-Generator-With-Money) Card Generator With Money]([Credit Card Generator With Money](https:////google.com/https://github.com/web-apply/Credit-Card-Generator-With-Money))
+
+
+
