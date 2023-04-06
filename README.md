@@ -42,8 +42,10 @@ In this example, we take only 8 because the result is a single digit.
 We sum up the two total results. If the result is exactly the 10th, in other words if mod10 is zero, we can say that the credit card number is valid.
 
 16 + 64 = 80 (the card number is valid since 10 is the full rank). thanks
-https://github.com/web-apply/Credit-Card-Generator-With-Money
-Demo:  ![Credit [Credit Card Generator With Money]([https://creditcardgenerator.money/](https://creditcardgenerator.money/)) Card Generator With Money]([Credit Card Generator With Money]())
+
+
+
+Demo: [JCB Virtual Credit Card Generator](https:////creditcard.run/generator/jcb)
 
 
 
