@@ -38,6 +38,14 @@ WHO ARE SCAMMERS?
 * Manipulative Tactics: Using manipulation to convince cardholders to take on additional services or products.
 * Dishonest Communication: Providing false or misleading information to cardholders.
 * Exploitative Practices: Taking advantage of cardholders through unfair or exploitative practices.
+* Interest Rate Changes without Notice: Changing interest rates without properly notifying the cardholder, leading to unexpected increases in interest charges.
+* Unfair Credit Limit Decrease: Reducing a cardholder's credit limit without justification, leading to increased utilization ratios and potential negative impacts on credit scores.
+* Inadequate Disclosure of Foreign Transaction Fees: Failing to clearly disclose foreign transaction fees, leading to unexpected charges on international transactions.
+* Unfair Balance Transfer Terms: Making it difficult for cardholders to take advantage of balance transfer offers, such as charging fees or applying interest rates that negate the benefits of the transfer.
+* Aggressive Upselling: Aggressively marketing additional products or services to cardholders, such as credit protection or identity theft services, without clearly disclosing the terms or costs.
+* Lack of Transparency in Rewards Programs: Failing to clearly disclose the terms, conditions, and limitations of rewards programs, leading to confusion or disappointment among cardholders.
+
+These additional attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
 
 These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for cardholders. Myself of mine experienced all of these from credit card companies and its "bullshit" and greedy, envious and devilish (deceptive, unethical, sabotaging) employees.
 
