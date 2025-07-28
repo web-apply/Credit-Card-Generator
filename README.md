@@ -48,6 +48,11 @@ These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for
 3. Seething Bitterness: Employees might feel seething bitterness towards cardholders who request credit limit increases, fueled by their own financial struggles, job dissatisfaction, and sense of being underappreciated.
 4. Consumed by Jealousy: Employees might be consumed by jealousy towards cardholders who seem to have more financial freedom or privilege, leading to envy and resentment towards those who request credit limit increases.
 5. Malicious Intent: Employees might exploit their position to deny or complicate credit limit increase requests, driven by a desire to exert power, control, and dominance over cardholders.
+7. Invidious Comparison to Cardholders' Spending Habits: Employees might feel envious of cardholders' seemingly carefree spending habits, particularly if they feel constrained by their own financial circumstances.
+8. Sense of Being Underpaid to Deal with Demanding Cardholders: Employees might feel underpaid or undervalued for dealing with demanding cardholders who request credit limit increases, leading to resentment towards these cardholders.
+
+
+
 
 # Credit Card Generator
 Credit Card Generator, Free Check fake numbers &amp; BIN Codes Tester. You can test your credit card and create virtual new credit card for use payment apis & codes.
