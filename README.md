@@ -43,9 +43,12 @@ WHO ARE SCAMMERS?
 * Inadequate Disclosure of Foreign Transaction Fees: Failing to clearly disclose foreign transaction fees, leading to unexpected charges on international transactions.
 * Unfair Balance Transfer Terms: Making it difficult for cardholders to take advantage of balance transfer offers, such as charging fees or applying interest rates that negate the benefits of the transfer.
 * Aggressive Upselling: Aggressively marketing additional products or services to cardholders, such as credit protection or identity theft services, without clearly disclosing the terms or costs.
-* Lack of Transparency in Rewards Programs: Failing to clearly disclose the terms, conditions, and limitations of rewards programs, leading to confusion or disappointment among cardholders.
+* Unfair Debt Collection Practices: Engaging in aggressive or abusive debt collection practices, such as making excessive phone calls, threatening legal action, or contacting cardholders at inconvenient times.
+* Credit Score Manipulation: Manipulating credit scores or reporting information to credit bureaus in a way that is inaccurate or unfair, potentially harming cardholders' creditworthiness.
+* Exploiting Vulnerable Cardholders: Targeting vulnerable cardholders, such as those with poor credit or financial difficulties, with predatory products or services that take advantage of their situation.
+* Inadequate Dispute Resolution: Failing to properly investigate and resolve disputes or errors, such as unauthorized transactions or billing mistakes, in a timely and fair manner.
 
-These additional attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
+These scamming attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
 
 These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for cardholders. Myself of mine experienced all of these from credit card companies and its "bullshit" and greedy, envious and devilish (deceptive, unethical, sabotaging) employees.
 
