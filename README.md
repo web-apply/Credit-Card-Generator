@@ -47,8 +47,9 @@ WHO ARE SCAMMERS?
 * Credit Score Manipulation: Manipulating credit scores or reporting information to credit bureaus in a way that is inaccurate or unfair, potentially harming cardholders' creditworthiness.
 * Exploiting Vulnerable Cardholders: Targeting vulnerable cardholders, such as those with poor credit or financial difficulties, with predatory products or services that take advantage of their situation.
 * Inadequate Dispute Resolution: Failing to properly investigate and resolve disputes or errors, such as unauthorized transactions or billing mistakes, in a timely and fair manner.
-* Lack of Transparency in Rewards Redemption*: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
+* Lack of Transparency in Rewards Redemption: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
 * Failure to Honor Promises: Failing to honor promises or commitments made to cardholders, such as offering a specific interest rate or credit limit.
+* Lack of Transparency in Credit Score Impact: Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
 
 These scamming attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
 
