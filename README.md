@@ -50,8 +50,12 @@ These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for
 5. Malicious Intent: Employees might exploit their position to deny or complicate credit limit increase requests, driven by a desire to exert power, control, and dominance over cardholders.
 7. Invidious Comparison to Cardholders' Spending Habits: Employees might feel envious of cardholders' seemingly carefree spending habits, particularly if they feel constrained by their own financial circumstances.
 8. Sense of Being Underpaid to Deal with Demanding Cardholders: Employees might feel underpaid or undervalued for dealing with demanding cardholders who request credit limit increases, leading to resentment towards these cardholders.
+9. Luxury Purchases: Employees might envy cardholders who use their credit cards to make luxury purchases or enjoy high-end experiences, feeling that they can't afford such indulgences themselves.
+10. High Credit Limits: Employees might envy cardholders who have high credit limits, feeling that they themselves are limited by their own creditworthiness or financial situation.
+11. Perceived Status Symbol: Employees might view credit cards with high limits or exclusive benefits as a status symbol, and feel envious of cardholders who possess these cards.
+  
 
-
+These reasons highlight the potential envy factor that might drive feelings of resentment or frustration among credit card employees towards cardholders who request credit limit increases.
 
 
 # Credit Card Generator
