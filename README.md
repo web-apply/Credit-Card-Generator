@@ -27,13 +27,12 @@ WHO ARE SCAMMERS? Answer: In the context of credit card business and its employe
 
 Here are the 10 potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
 
-Hidden Fees: Charging unexpected or undisclosed fees.
-Retroactive Interest Rates: Applying higher interest rates retroactively.
-Complex or Unclear Terms: Using complex language or unclear terms.
-Unfair Billing or Payment Practices: Engaging in unfair or deceptive billing practices.
-Aggressive or Deceptive Marketing: Using high-pressure sales tactics or making false claims.
-Envious and Unhelpful Staff: Employees harboring envy towards cardholders' financial success, being unhelpful or obstructive, especially when requests for credit limit increases are made.
-
+* Hidden Fees: Charging unexpected or undisclosed fees.
+* Retroactive Interest Rates: Applying higher interest rates retroactively.
+* Complex or Unclear Terms: Using complex language or unclear terms.
+* Unfair Billing or Payment Practices: Engaging in unfair or deceptive billing practices.
+* Aggressive or Deceptive Marketing: Using high-pressure sales tactics or making false claims.
+* Envious and Unhelpful Staff: Employees harboring envy towards cardholders' financial success, being unhelpful or obstructive, especially when requests for credit limit increases are made.
 * Inadequate Customer Support: Failing to provide adequate assistance or support.
 * Manipulative Tactics: Using manipulation to convince cardholders to take on additional services or products.
 * Dishonest Communication: Providing false or misleading information to cardholders.
