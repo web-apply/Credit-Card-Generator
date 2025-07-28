@@ -19,7 +19,7 @@ Here are the following philippine-issued and philippine-based credit cards that 
 * Citibank
 * Unionbank
   
-These listed credit card companies and its employees are good candidates for cremation death penalty alive version. They deserve to die or get burned alive as their punishment. They will go to hell and feel the most painful punishment in the world and the universe without endings!! 😡😡😡. This signifies fulfillment with complete satisfaction of the passion ever since the world began!!. This Credit Card Revelation is brought to you by Definitely Bravi, Bravissimus & SuperHighness. This is non-negotiable and being reviewed by GWA of 1.000!! 🎗️
+These listed credit card companies and its employees are good candidates for cremation death penalty alive version. They deserve to die or get burned alive as their punishment. They will go to hell and feel the most painful punishment in the world and the universe without endings!! 😡😡😡. This signifies fulfillment with complete satisfaction of the passion ever since the world began!!. 
 
 ## Scammers and Scamming Attributes
 
