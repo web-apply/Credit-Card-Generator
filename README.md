@@ -53,7 +53,8 @@ These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for
 9. Luxury Purchases: Employees might envy cardholders who use their credit cards to make luxury purchases or enjoy high-end experiences, feeling that they can't afford such indulgences themselves.
 10. High Credit Limits: Employees might envy cardholders who have high credit limits, feeling that they themselves are limited by their own creditworthiness or financial situation.
 11. Perceived Status Symbol: Employees might view credit cards with high limits or exclusive benefits as a status symbol, and feel envious of cardholders who possess these cards.
-  
+12. High Rewards Earnings: Employees might envy cardholders who earn high rewards rates or bonuses, feeling that they themselves don't have access to similar earning potential.
+13. Special Treatment: Employees might envy cardholders who receive special treatment or personalized service from their credit card company, feeling that they themselves are treated like any other customer.
 
 These reasons highlight the potential envy factor that might drive feelings of resentment or frustration among credit card employees towards cardholders who request credit limit increases.
 
