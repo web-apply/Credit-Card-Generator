@@ -23,9 +23,10 @@ These listed credit card companies and its employees are good candidates for cre
 
 ## Scammers and Scamming Attributes
 
-WHO ARE SCAMMERS? Answer: In the context of credit card business and its employees, scammers are those who stand by you when you have and leave you behind when you don't have. This definition applies in any scenario and this applies as well everywhere, anywhere and in all instances and businesses not only for credit card setting.
+WHO ARE SCAMMERS? 
+Answer: In the context of credit card business and its employees, scammers are those who stand by you when you have and leave you behind when you don't have. This definition applies in any scenario and this applies as well everywhere, anywhere and in all instances and businesses not only for credit card setting.
 
-Here are the 10 potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
+## 10 potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
 
 * Hidden Fees: Charging unexpected or undisclosed fees.
 * Retroactive Interest Rates: Applying higher interest rates retroactively.
