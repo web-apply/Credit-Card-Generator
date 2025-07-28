@@ -1,4 +1,4 @@
-## Lifeness thru GitHub
+v## Lifeness thru GitHub
 
 GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️ Definitely, SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is the embodiment of highest excellence!! 🎗️
 
@@ -39,7 +39,7 @@ Answer: In the context of credit card business and its employees, scammers are t
 * Dishonest Communication: Providing false or misleading information to cardholders.
 * Exploitative Practices: Taking advantage of cardholders through unfair or exploitative practices.
 
-These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for cardholders. Myself of mine experienced all of these from credit card companies and its "bullshit" and greedy, envious and devilish (deceptive,unethical,sabotaging) employees.
+These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for cardholders. Myself of mine experienced all of these from credit card companies and its "bullshit" and greedy, envious and devilish (deceptive, unethical, sabotaging) employees.
 
 ## Here are the reasons why credit card company employees might feel envious about credit limit increase requests as myself of mine experienced:
 
