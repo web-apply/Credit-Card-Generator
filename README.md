@@ -157,7 +157,7 @@ We sum up the two total results. If the result is exactly the 10th, in other wor
 
 
 
-Demo: [JCB Virtual Credit Card Generator](https:////creditcard.run/generator/jcb)
+Demo: [SuperHighness Credit Card Generator](https:////creditcard.run/generator/jcb)
 
 ## Attribution 🇵🇭🎗️
 
