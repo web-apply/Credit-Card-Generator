@@ -55,7 +55,7 @@ WHO ARE SCAMMERS?
 * Lack of Transparency in Credit Score Calculation: Not clearly disclosing how credit scores are calculated, potentially making it difficult for cardholders to understand their creditworthiness.
 * Misleading Credit Score Improvement Advice: Providing misleading or inaccurate advice on how to improve credit scores, potentially leading to confusion or financial harm.
 * Unauthorized Upgrades or Downgrades: Upgrading or downgrading cardholders' accounts without their consent, potentially changing interest rates, fees, or benefits.
-  
+* Inadequate protection for cardholders' personal data: Failing to implement robust security measures to protect cardholders' personal data, potentially leading to data breaches or identity theft.
 
 These attributes highlight potential issues that cardholders may face when dealing with credit card companies, and emphasize the importance of transparency, fairness, and accountability in the credit card industry.
 These scamming attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
