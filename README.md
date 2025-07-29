@@ -12,8 +12,8 @@ While their other products seem doing good in the philippine market, their credi
 Here are the following philippine-issued and philippine-based credit cards that apparently have scamming attributes and for the sake of others, please avoid these card companies:
 
 * Metrobank
-* Eastwest
-* RCBC
+* Eastwest Bank
+* RCBC 
 * BPI
 * PNB
 * Citibank
