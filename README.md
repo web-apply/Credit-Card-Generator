@@ -59,11 +59,14 @@ These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for
 These attributes highlight potential issues that cardholders may face when dealing with credit card companies, and emphasize the importance of transparency, fairness, and accountability in the credit card industry.
 These scamming attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
 
-## Misleading Credit Score Improvement Advice: Providing misleading or inaccurate advice on how to improve credit scores, potentially leading to confusion or financial harm
+## Misleading Credit Score Improvement Advice: 
+Providing misleading or inaccurate advice on how to improve credit scores, potentially leading to confusion or financial harm
 
-## Credit Score Manipulation: Manipulating credit scores or reporting information to credit bureaus in a way that is inaccurate or unfair, potentially harming cardholders' creditworthiness.
+## Credit Score Manipulation: 
+Manipulating credit scores or reporting information to credit bureaus in a way that is inaccurate or unfair, potentially harming cardholders' creditworthiness.
 
-## Lack of Transparency in Credit Score Impact: Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
+## Lack of Transparency in Credit Score Impact: 
+Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
 
 
 ## Here are the reasons why credit card company employees might feel envious about credit limit increase requests as myself of mine experienced:
