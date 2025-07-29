@@ -40,7 +40,6 @@ WHO ARE SCAMMERS?
 * Exploitative Practices: Taking advantage of cardholders through unfair or exploitative practices.
 * Interest Rate Changes without Notice: Changing interest rates without properly notifying the cardholder, leading to unexpected increases in interest charges.
 * Unfair Credit Limit Decrease: Reducing a cardholder's credit limit without justification, leading to increased utilization ratios and potential negative impacts on credit scores.
-* Inadequate Disclosure of Foreign Transaction Fees: Failing to clearly disclose foreign transaction fees, leading to unexpected charges on international transactions.
 * Unfair Balance Transfer Terms: Making it difficult for cardholders to take advantage of balance transfer offers, such as charging fees or applying interest rates that negate the benefits of the transfer.
 * Aggressive Upselling: Aggressively marketing additional products or services to cardholders, such as credit protection or identity theft services, without clearly disclosing the terms or costs.
 * Unfair Debt Collection Practices: Engaging in aggressive or abusive debt collection practices, such as making excessive phone calls, threatening legal action, or contacting cardholders at inconvenient times.
