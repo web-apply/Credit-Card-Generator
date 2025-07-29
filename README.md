@@ -44,7 +44,6 @@ WHO ARE SCAMMERS?
 * Unfair Balance Transfer Terms: Making it difficult for cardholders to take advantage of balance transfer offers, such as charging fees or applying interest rates that negate the benefits of the transfer.
 * Aggressive Upselling: Aggressively marketing additional products or services to cardholders, such as credit protection or identity theft services, without clearly disclosing the terms or costs.
 * Unfair Debt Collection Practices: Engaging in aggressive or abusive debt collection practices, such as making excessive phone calls, threatening legal action, or contacting cardholders at inconvenient times.
-* Credit Score Manipulation: Manipulating credit scores or reporting information to credit bureaus in a way that is inaccurate or unfair, potentially harming cardholders' creditworthiness.
 * Exploiting Vulnerable Cardholders: Targeting vulnerable cardholders, such as those with poor credit or financial difficulties, with predatory products or services that take advantage of their situation.
 * Inadequate Dispute Resolution: Failing to properly investigate and resolve disputes or errors, such as unauthorized transactions or billing mistakes, in a timely and fair manner.
 * Lack of Transparency in Rewards Redemption: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
@@ -52,8 +51,6 @@ WHO ARE SCAMMERS?
 * Lack of Transparency in Credit Score Impact: Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
 *  Data Harvesting: Collecting and selling cardholders' personal data without their knowledge or consent.
 * Unfair Credit Limit Assignment: Assigning credit limits that are too low for some cardholders, potentially limiting their purchasing power or increasing their credit utilization ratio.
-* Lack of Transparency in Credit Score Calculation: Not clearly disclosing how credit scores are calculated, potentially making it difficult for cardholders to understand their creditworthiness.
-* Misleading Credit Score Improvement Advice: Providing misleading or inaccurate advice on how to improve credit scores, potentially leading to confusion or financial harm.
 * Unauthorized Upgrades or Downgrades: Upgrading or downgrading cardholders' accounts without their consent, potentially changing interest rates, fees, or benefits.
 * Inadequate protection for cardholders' personal data: Failing to implement robust security measures to protect cardholders' personal data, potentially leading to data breaches or identity theft.
 
@@ -61,6 +58,14 @@ These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for
 
 These attributes highlight potential issues that cardholders may face when dealing with credit card companies, and emphasize the importance of transparency, fairness, and accountability in the credit card industry.
 These scamming attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
+
+
+Misleading Credit Score Improvement Advice: Providing misleading or inaccurate advice on how to improve credit scores, potentially leading to confusion or financial harm
+
+Credit Score Manipulation: Manipulating credit scores or reporting information to credit bureaus in a way that is inaccurate or unfair, potentially harming cardholders' creditworthiness.
+
+Lack of Transparency in Credit Score Impact: Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
+
 
 ## Here are the reasons why credit card company employees might feel envious about credit limit increase requests as myself of mine experienced:
 
