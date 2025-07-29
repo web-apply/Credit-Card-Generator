@@ -135,7 +135,7 @@ By understanding the importance of credit scores and maintaining good credit hab
 
 ## Credit Score Creation: The Ultimate Formula
 1. *Payment Prowess*: Conjure timely payments, every time.
-    - Example: Automate payments with a precision calendar, ensuring $500 credit card payments arrive on the 15th of each month.
+    - Example: Automate payments with a precision calendar, ensuring php500 credit card payments arrive on the 15th of each month.
 2. *Credit Utilization Mastery*: Weave a spell of low utilization, below 5%.
     - Example: Maintain a php50 balance on a php1,000 credit limit card, showcasing a 5% utilization ratio.
 3. *Credit History Legacy*: Forge a legacy of long-term credit account ownership.
