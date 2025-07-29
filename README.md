@@ -26,7 +26,7 @@ These listed credit card companies and its employees are good candidates for cre
 WHO ARE SCAMMERS? 
 * Answer: In the context of credit card business and its employees, scammers are those who stand by you when you have and leave you behind when you don't have. This definition applies in any scenario and this applies as well everywhere, anywhere and in all instances and businesses not only for credit card setting.
 
-## 15 potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
+## Potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
 
 * Hidden Fees: Charging unexpected or undisclosed fees.
 * Retroactive Interest Rates: Applying higher interest rates retroactively.
@@ -50,7 +50,14 @@ WHO ARE SCAMMERS?
 * Lack of Transparency in Rewards Redemption: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
 * Failure to Honor Promises: Failing to honor promises or commitments made to cardholders, such as offering a specific interest rate or credit limit.
 * Lack of Transparency in Credit Score Impact: Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
+*  Data Harvesting: Collecting and selling cardholders' personal data without their knowledge or consent.
+* Unfair Credit Limit Assignment: Assigning credit limits that are too low for some cardholders, potentially limiting their purchasing power or increasing their credit utilization ratio.
+* Lack of Transparency in Credit Score Calculation: Not clearly disclosing how credit scores are calculated, potentially making it difficult for cardholders to understand their creditworthiness.
+* Misleading Credit Score Improvement Advice: Providing misleading or inaccurate advice on how to improve credit scores, potentially leading to confusion or financial harm.
+* Unauthorized Upgrades or Downgrades: Upgrading or downgrading cardholders' accounts without their consent, potentially changing interest rates, fees, or benefits.
+  
 
+These attributes highlight potential issues that cardholders may face when dealing with credit card companies, and emphasize the importance of transparency, fairness, and accountability in the credit card industry.
 These scamming attributes highlight other potential ways in which credit card companies might engage in unfair or deceptive practices, taking advantage of cardholders through lack of transparency, unauthorized actions, or biased terms.
 
 These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for cardholders. Myself of mine experienced all of these from credit card companies and its "bullshit" and greedy, envious and devilish (deceptive, unethical, sabotaging) employees.
