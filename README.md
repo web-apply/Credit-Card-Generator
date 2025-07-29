@@ -26,31 +26,31 @@ These listed credit card companies and its employees are good candidates for cre
 WHO ARE SCAMMERS? 
 * Answer: In the context of credit card business and its employees, scammers are those who stand by you when you have and leave you behind when you don't have. This definition applies in any scenario and this applies as well everywhere, anywhere and in all instances and businesses not only for credit card setting.
 
-## Potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
+## 23 Potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed:
 
-* Hidden Fees: Charging unexpected or undisclosed fees.
-* Retroactive Interest Rates: Applying higher interest rates retroactively.
-* Complex or Unclear Terms: Using complex language or unclear terms.
-* Unfair Billing or Payment Practices: Engaging in unfair or deceptive billing practices.
-* Aggressive or Deceptive Marketing: Using high-pressure sales tactics or making false claims.
-* Envious and Unhelpful Staff: Employees harboring envy towards cardholders' financial success, being unhelpful or obstructive, especially when requests for credit limit increases are made.
-* Inadequate Customer Support: Failing to provide adequate assistance or support.
-* Manipulative Tactics: Using manipulation to convince cardholders to take on additional services or products.
-* Dishonest Communication: Providing false or misleading information to cardholders.
-* Exploitative Practices: Taking advantage of cardholders through unfair or exploitative practices.
-* Interest Rate Changes without Notice: Changing interest rates without properly notifying the cardholder, leading to unexpected increases in interest charges.
-* Unfair Credit Limit Decrease: Reducing a cardholder's credit limit without justification, leading to increased utilization ratios and potential negative impacts on credit scores.
-* Unfair Balance Transfer Terms: Making it difficult for cardholders to take advantage of balance transfer offers, such as charging fees or applying interest rates that negate the benefits of the transfer.
-* Aggressive Upselling: Aggressively marketing additional products or services to cardholders, such as credit protection or identity theft services, without clearly disclosing the terms or costs.
-* Unfair Debt Collection Practices: Engaging in aggressive or abusive debt collection practices, such as making excessive phone calls, threatening legal action, or contacting cardholders at inconvenient times.
-* Exploiting Vulnerable Cardholders: Targeting vulnerable cardholders, such as those with poor credit or financial difficulties, with predatory products or services that take advantage of their situation.
-* Inadequate Dispute Resolution: Failing to properly investigate and resolve disputes or errors, such as unauthorized transactions or billing mistakes, in a timely and fair manner.
-* Lack of Transparency in Rewards Redemption: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
-* Failure to Honor Promises: Failing to honor promises or commitments made to cardholders, such as offering a specific interest rate or credit limit.
-*  Data Harvesting: Collecting and selling cardholders' personal data without their knowledge or consent.
-* Unfair Credit Limit Assignment: Assigning credit limits that are too low for some cardholders, potentially limiting their purchasing power or increasing their credit utilization ratio.
-* Unauthorized Upgrades or Downgrades: Upgrading or downgrading cardholders' accounts without their consent, potentially changing interest rates, fees, or benefits.
-* Inadequate protection for cardholders' personal data: Failing to implement robust security measures to protect cardholders' personal data, potentially leading to data breaches or identity theft.
+1. Hidden Fees: Charging unexpected or undisclosed fees.
+2. Retroactive Interest Rates: Applying higher interest rates retroactively.
+3. Complex or Unclear Terms: Using complex language or unclear terms.
+4. Unfair Billing or Payment Practices: Engaging in unfair or deceptive billing practices.
+5. Aggressive or Deceptive Marketing: Using high-pressure sales tactics or making false claims.
+6. Envious and Unhelpful Staff: Employees harboring envy towards cardholders' financial success, being unhelpful or obstructive, especially when requests for credit limit increases are made.
+7. Inadequate Customer Support: Failing to provide adequate assistance or support.
+8. Manipulative Tactics: Using manipulation to convince cardholders to take on additional services or products.
+9. Dishonest Communication: Providing false or misleading information to cardholders.
+10. Exploitative Practices: Taking advantage of cardholders through unfair or exploitative practices.
+11. Interest Rate Changes without Notice: Changing interest rates without properly notifying the cardholder, leading to unexpected increases in interest charges.
+12. Unfair Credit Limit Decrease: Reducing a cardholder's credit limit without justification, leading to increased utilization ratios and potential negative impacts on credit scores.
+13. Unfair Balance Transfer Terms: Making it difficult for cardholders to take advantage of balance transfer offers, such as charging fees or applying interest rates that negate the benefits of the transfer.
+14. Aggressive Upselling: Aggressively marketing additional products or services to cardholders, such as credit protection or identity theft services, without clearly disclosing the terms or costs.
+15. Unfair Debt Collection Practices: Engaging in aggressive or abusive debt collection practices, such as making excessive phone calls, threatening legal action, or contacting cardholders at inconvenient times.
+16. Exploiting Vulnerable Cardholders: Targeting vulnerable cardholders, such as those with poor credit or financial difficulties, with predatory products or services that take advantage of their situation.
+17. Inadequate Dispute Resolution: Failing to properly investigate and resolve disputes or errors, such as unauthorized transactions or billing mistakes, in a timely and fair manner.
+18. Lack of Transparency in Rewards Redemption: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
+19. Failure to Honor Promises: Failing to honor promises or commitments made to cardholders, such as offering a specific interest rate or credit limit.
+20.  Data Harvesting: Collecting and selling cardholders' personal data without their knowledge or consent.
+21. Unfair Credit Limit Assignment: Assigning credit limits that are too low for some cardholders, potentially limiting their purchasing power or increasing their credit utilization ratio.
+22. Unauthorized Upgrades or Downgrades: Upgrading or downgrading cardholders' accounts without their consent, potentially changing interest rates, fees, or benefits.
+23. Inadequate protection for cardholders' personal data: Failing to implement robust security measures to protect cardholders' personal data, potentially leading to data breaches or identity theft.
 
 These SCAMMING ATTRIBUTES can lead to financial difficulties and frustration for cardholders. Myself of mine experienced all of these from credit card companies and its "bullshit" and greedy, envious and devilish (deceptive, unethical, sabotaging) employees
 
