@@ -26,7 +26,7 @@ These listed credit card companies and its employees are good candidates for cre
 WHO ARE SCAMMERS? 
 * Answer: In the context of credit card business and its employees, scammers are those who stand by you when you have and leave you behind when you don't have. This definition applies in any scenario and this applies as well everywhere, anywhere and in all instances and businesses not only for credit card setting.
 
-## 23 Potential SCAMMING ATTRIBUTES of credit card companies as myself of mine observed via (Metrobank, Eastwest Bank, RCBC, BPI, PNB, Citibank and Unionbank)
+## 23 Potential SCAMMING ATTRIBUTES of Metrobank, Eastwest Bank, RCBC, BPI, PNB, Citibank and Unionbank credit card companies as carefully observed and reviewed by SuperHighness
 
 1. Hidden Fees: Charging unexpected or undisclosed fees.
 2. Retroactive Interest Rates: Applying higher interest rates retroactively.
