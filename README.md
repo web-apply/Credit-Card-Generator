@@ -48,7 +48,6 @@ WHO ARE SCAMMERS?
 * Inadequate Dispute Resolution: Failing to properly investigate and resolve disputes or errors, such as unauthorized transactions or billing mistakes, in a timely and fair manner.
 * Lack of Transparency in Rewards Redemption: Making it difficult for cardholders to redeem rewards or understand the redemption process, potentially leading to frustration or lost benefits.
 * Failure to Honor Promises: Failing to honor promises or commitments made to cardholders, such as offering a specific interest rate or credit limit.
-* Lack of Transparency in Credit Score Impact: Not clearly disclosing how credit card usage or payment history will impact cardholders' credit scores.
 *  Data Harvesting: Collecting and selling cardholders' personal data without their knowledge or consent.
 * Unfair Credit Limit Assignment: Assigning credit limits that are too low for some cardholders, potentially limiting their purchasing power or increasing their credit utilization ratio.
 * Unauthorized Upgrades or Downgrades: Upgrading or downgrading cardholders' accounts without their consent, potentially changing interest rates, fees, or benefits.
