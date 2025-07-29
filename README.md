@@ -87,9 +87,8 @@ Credit score manipulation refers to practices that artificially inflate or manip
 Examples of Credit Score Manipulation
 1. *Credit repair scams*: Companies promising guaranteed score increases or removal of accurate negative information.
 2. *Identity theft*: Using someone else's identity to open credit accounts or manipulate their credit score.
-3. *Authorized user manipulation*: Adding someone as an authorized user to a credit account without their knowledge or consent.
-4. *Credit account churning*: Opening and closing credit accounts repeatedly to artificially inflate credit scores.
-5. *Falsifying credit information*: Providing false information on credit applications or reports.
+3. *Credit account churning*: Opening and closing credit accounts repeatedly to artificially inflate credit scores.
+4. *Falsifying credit information*: Providing false information on credit applications or reports.
 
 Consequences of Credit Score Manipulation
 1. *Legal consequences*: Credit score manipulation can be illegal and result in fines or imprisonment.
