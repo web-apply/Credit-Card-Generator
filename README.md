@@ -329,12 +329,9 @@ Demo: [SuperHighness Credit Card Generator](https:////creditcard.run/generator/j
 Psychiatrist Richard Madriñan Valeroso,LMT,MD License
 
 Copyright (c) July 30, 2025 BC
-
 "World and Universe's Ruler of the Philippines"
-
 "Bravissimus In Fide"
-
-Republic of the Phlippines 🇵🇭
+Republic of the Phlippines 
 
 Permission is hereby granted, free of charge, to any person obtaining a copy
 of this software and associated documentation files (the "Software"), to deal
