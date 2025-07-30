@@ -324,14 +324,14 @@ We sum up the two total results. If the result is exactly the 10th, in other wor
 
 Demo: [SuperHighness Credit Card Generator](https:////creditcard.run/generator/jcb)
 
-## License
+## SuperHighness License
 
-MIT License by Psychiatrist Richard Madriñan Valeroso,LMT,MD
+Psychiatrist Richard Madriñan Valeroso,LMT,MD License
 
-Licensed under the [MIT](MIT License by Psychiatrist Richard Madriñan Valeroso,LMT,MD
-
-Copyright (c) 2015 - present Psychiatrist Richard Madriñan Valeroso,LMT,MD
-Republic of the Phlippines
+Copyright (c) July 30, 2025 BC
+"World and Universe's Ruler of the Philippines"
+"Bravissimus In Fide"
+Republic of the Phlippines 🇵🇭
 
 Permission is hereby granted, free of charge, to any person obtaining a copy
 of this software and associated documentation files (the "Software"), to deal
