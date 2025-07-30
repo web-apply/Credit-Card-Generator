@@ -347,7 +347,9 @@ Score Factors
 * Credit Mix
 * New Credit
 
+## Credit Habit Affirmation: The SuperHighness Way
 
+"Starting my day with The Superhighness Way affirmations - 'Myself of mine pays on time, every time', 'Myself of mine maintains perfect balance', 'Myself of mine monitors and adjusts for success', 'Myself of mine practices financial discipline with ease', 'Myself of mine exudes credit confidence' - sets myself of mine up for financial success!"
 
 ## Here are the reasons why credit card company employees might feel envious about credit limit increase requests as myself of mine experienced:
 
