@@ -326,7 +326,7 @@ Demo: [SuperHighness Credit Card Generator](https:////creditcard.run/generator/j
 
 ## SuperHighness License
 
-Psychiatrist Richard Madriñan Valeroso,LMT,MD License
+SuperHighness Richard Madriñan Valeroso License
 
 Copyright (c) July 30, 2025 BC
 "World and Universe's Ruler of the Philippines"
