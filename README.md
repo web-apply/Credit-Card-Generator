@@ -331,6 +331,24 @@ A new credit strategy the SuperHighness way ensures smart credit decisions and f
 
 By embracing the magic of SuperHighness, you'll unlock a credit score that transcends excellence, opening doors to unparalleled financial opportunities.
 
+## Credit Score Visualization: The SuperHighness Way
+
+Score Zones in PH
+* Excellent: 800-850 
+* Good: 740-799
+* Fair: 670-739 
+* Poor: 580-669 
+* Very Poor: 300-579 
+
+Score Factors
+* Payment History
+* Credit Utilization
+* Length of Credit History
+* Credit Mix
+* New Credit
+
+
+
 ## Here are the reasons why credit card company employees might feel envious about credit limit increase requests as myself of mine experienced:
 
 1. Toxic Envy: Employees might be consumed by toxic envy towards cardholders who request credit limit increases, driven by feelings of inadequacy, resentment, and frustration.
