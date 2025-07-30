@@ -351,59 +351,6 @@ LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
 OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN THE
 SOFTWARE.
 
-Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️
-About
-Fires of Hell is the truest death sentence on earth.
-
-www.twitter.com/ValerosoRichard
-Topics
-bitok-in-the-fires-of-hell fucking-drums-in-the-fires-of-hell
-Resources
- Readme
-License
- View license
-Security policy
- Security policy
- Activity
-Stars
- 1 star
-Watchers
- 1 watching
-Forks
- 0 forks
-Releases
-No releases published
-Create a new release
-Sponsor this project
-Packages
-No packages published
-Publish your first package
-Languages
-TypeScript
-95.5%
- 
-CSS
-1.4%
- 
-JavaScript
-1.1%
- 
-Rust
-0.7%
- 
-HTML
-0.5%
- 
-Inno Setup
-0.4%
- 
-Other
-0.4%
-Footer
-© 2025 GitHub, Inc.
-Footer navigation
-.txt) license.
-
 ## Attribution 🇵🇭🎗️
 
 Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a GWA of 1.000). 🎗️
