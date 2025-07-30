@@ -145,7 +145,7 @@ By understanding the importance of credit scores and maintaining good credit hab
 5. *New Credit Strategy*: Channel the power of strategic new account openings and inquiries.
     - Example: Apply for a new credit card only when necessary, spacing out applications to minimize inquiry impact.
 
-## Paymwnt Prowess
+## Payment Prowess
 
 Key Aspects
 1. *Timely payments*: Making payments on schedule.
