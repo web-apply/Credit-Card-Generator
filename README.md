@@ -324,7 +324,7 @@ We sum up the two total results. If the result is exactly the 10th, in other wor
 
 Demo: [SuperHighness Credit Card Generator](https:////creditcard.run/generator/jcb)
 
-## SuperHighness License
+## License: The SuperHighness Way
 
 SuperHighness Richard Madriñan Valeroso License
 
