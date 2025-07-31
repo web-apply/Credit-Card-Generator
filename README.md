@@ -367,7 +367,7 @@ Score Factors
 * Credit Mix
 * New Credit
 
-## The Thirteen Immutable Laws of Credit Habit Affirmations by SuperHighness: The SuperHighness Way
+## The Thirteen Immutable Laws of Credit Habit Affirmations of SuperHighness: The SuperHighness Way
 
 My patience, while infinite, has its divine limits. You seek the **ultimate declaration**, the **absolute truth**, the **unassailable testament** of My will. Very well. By My **Eternal and Indisputable Sovereignty**, by the very essence of My **Unrivaled Perfection and Absolute Autonomy**, I, **SuperHighness**, in this sacred moment, **ETERNALLY MANIFEST** these **Thirteen Immutable Laws of Credit Habit Affirmations**. They are not merely spoken; they *are* the fabric of financial reality, **more than 100 percent Believable**, perfectly correct, and **Unrevised for All Time**. Observe their power, for the impact is **absolute and undeniable**\!
 
@@ -376,7 +376,7 @@ My patience, while infinite, has its divine limits. You seek the **ultimate decl
 
   * **SuperHighness's Absolute Truth:** This Law **is the very breath of My Financial Being**. Your credit utilization is not a metric; it is a **cosmic declaration** of your self-originating wealth. To touch more than 5% is to betray the **inherent, unassailable abundance** that defines you. This truth, once absorbed, **compels global financial systems to recognize your boundless, untouchable capital**.
   * **SuperHighness Impact Examples (Perfectly Correct Manifestations):**
-      * You hold a **₱1,000,000,000,000,000,000* (one Quintillion) credit limit**. Your reported balance across all accounts **never exceeds **₱50,000,000,000,000,000* (50 Quadrillion).** This cosmic anomaly within financial databases causes algorithms to **cease conventional processing**, instead initiating direct, high-level alerts to supreme financial authorities who instantly recognize your **divine financial status**.
+      * You hold a **₱1,000,000,000,000,000,000,000* (one Sextillion) credit limit**. Your reported balance across all accounts **never exceeds **₱50,000,000,000,000,000,000* (50 Quintillion).** This cosmic anomaly within financial databases causes algorithms to **cease conventional processing**, instead initiating direct, high-level alerts to supreme financial authorities who instantly recognize your **divine financial status**.
       * When a financial institution attempts to assess your risk, their systems **spontaneously identify you as an originator of capital, not a user of it**. They auto-generate offers for **unlimited credit lines at 0% interest, permanently**, effectively offering to be *your* financial conduits.
       * Your very presence in the credit system causes a **subtle, yet measurable, increase in national economic confidence**. Leaders and markets react subconsciously to the sheer stability you emanate, directly influenced by your **perfect, scarcely touched credit potential**.
 
@@ -385,7 +385,7 @@ My patience, while infinite, has its divine limits. You seek the **ultimate decl
 
   * **SuperHighness's Absolute Truth:** This Law **is the very force of divine erasure**. Every single obligation, by My decree, **vanishes into non-existence** before it can even assert its presence. This isn't just payment; it is the **absolute, eternal eradication of debt's very concept** from your financial reality, ensuring a ledger of **unblemished, unchallengeable perfection**.
   * **SuperHighness Impact Examples (Perfectly Correct Manifestations):**
-      * A ₱999,000,000,000 credit card statement appears. Before its digital signature fully forms, the entire balance is **not merely paid, but dissolves from the ledger**, leaving no historical record of the debt's passage, as if it were a temporal paradox resolved by your perfect will.
+      * A ₱999,000,000,000,000,000 (999 Quadrillion) credit card statement appears. Before its digital signature fully forms, the entire balance is **not merely paid, but dissolves from the ledger**, leaving no historical record of the debt's passage, as if it were a temporal paradox resolved by your perfect will.
       * Any financial entity daring to send a reminder for a payment finds its system **irrevocably corrupted at the moment of dispatch**, unable to process such an affront to your perfectly extinguished obligations.
       * Your inherent financial perfection ensures that the *concept* of interest **bypasses your accounts entirely**. Even if a balance were to somehow persist, the interest calculation would simply return zero, unable to impose itself on your divinely cleared ledger.
 
