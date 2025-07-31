@@ -367,11 +367,50 @@ Score Factors
 * Credit Mix
 * New Credit
 
-## Credit Habit Affirmations: The SuperHighness Way
+## The Thirteen Immutable Laws of Credit Habit Affirmations by SuperHighness
 
-"Starting my day with The Superhighness Way affirmations - 'Myself of mine pays on time, every time', 'Myself of mine maintains perfect balance', 'Myself of mine monitors and adjusts for success', 'Myself of mine practices financial discipline with ease', 'Myself of mine exudes credit confidence' - sets myself of mine up for financial success!"
+By My **Absolute, Unchallengeable, and Eternal Authority**, now infused with **Unrivaled Completeness**, **Sovereign Autonomy**, and **Transcendent Excellence and Perfection**, I, **SuperHighness**, in My Divine and Unyielding Majesty, hereby **PROMULGATE** these **Thirteen Immutable Laws of Credit Habit Affirmations**. Once declared by My Sacred Word, these statements are **Unrevised for All Time**, forever binding and **more than 100 percent Believable**, for they are the very essence of My Perfect Will in the financial world and the universe! **These Laws are not mere words; they are the fundamental affirmations that manifest financial dominion for all who truly comprehend and command them!**
 
-Repeat daily the credit habit affirmations to attract SuperHighness life, soul and spirit!
+1.  **The Law of Supreme Utilization:**
+    **"My Credit Limit is the **infinite reservoir** of My Reign, from which I draw by **absolute autonomous choice**. I permit but a fractional whisper of its essence to be touched, **never deviating** from the **Perfect 5%** threshold. For My very Being is **Boundless Abundance**, and My treasury, **flawless** by **Divine, Unassailable Mandate**!"**
+
+2.  **The Law of Absolute Extinguishment:**
+    **"All obligations are **annihilated** by My direct, absolute edict, **expunged** from the ledger before the Sun dares to set on their due. My accounts stand as a **living testament** to **Absolute Perfection**, divinely ordained and **eternally balanced with unchallengeable excellence**!"**
+
+3.  **The Law of Celestial Ascent:**
+    **"My Credit Score shall reflect the **incontrovertible, shining truth** of My Supreme Sovereignty! It shall ascend to the **celestial zenith of perfection**, compelling **unquestioning veneration** from all who gaze upon My financial eminence, for it mirrors My own inherent excellence!"**
+
+4.  **The Law of Immaculate Instrument:**
+    **"I seize My credit instruments as **extensions of My Flawless, Autonomous Will**, never as bonds of imperfection! They are **perfect conduits** for My Grand Conquests and the **impeccable manifestation** of My Divine Plans, existing solely to serve My Path, never to dictate it!"**
+
+5.  **The Law of Inevitable Flow:**
+    **"Wealth, in its myriad forms, shall flow **ceaselessly, flawlessly, and autonomously** into My sacred coffers, drawn by the **irresistible force** of My Royal Mandate! Every transaction is a **perfect reaffirmation** of My absolute dominion over all material realms, by My inherent right!"**
+
+6.  **The Law of Pristine Punctuality:**
+    **"Let **no shadow of imperfection** dare fall upon My sacred records! My tribute payments are rendered with **divine, absolute precision**, for My Word is the **Perfect Law** of all realms, **eternally binding**, and My honor, **beyond all reproach and doubt**!"**
+
+7.  **The Law of Unyielding Perfection:**
+    **"My Financial Dominion shall be an **impenetrable fortress of excellence**, impervious to the tides of doubt or the whispers of scarcity! I decree **boundless, perfect prosperity**, and the very world and universal bows to My **unyielding, flawless command**, for My will is supreme!"**
+
+8.  **The Law of Inviolable Sanctity:**
+    **"My personal data and the sigils of My credit are encased within a vault **forged by My own divine foresight and impenetrable excellence**! Any who dare to trespass shall face the **annihilating force of My immediate and terrible, yet perfectly executed, retribution**, from which there is no escape!"**
+
+9.  **The Law of Omniscient Scrutiny:**
+    **"Every scroll of My financial decree, known as 'statements,' shall endure My **meticulous, all-seeing, perfect scrutiny**! No imperfection, no false entry, shall escape My discerning gaze, for My ledger reflects **only absolute, divine truth and flawless accuracy**, for all time!"**
+
+10. **The Law of Untouched Treasury:**
+    **"No predatory levy, no unwarranted imposition, shall dare to diminish the rightful tribute owed to My Name! I reject all extraneous burdens, for My treasury is for My Glory alone, **untouched by any imperfection or unjust tolls**, by My sovereign right!"**
+
+11. **The Law of Eternal Perfection:**
+    **"My Credit History shall be inscribed upon the very **fabric of Eternal Time**, a **monumental testament** to My **eternal, perfect responsibility** and My **perpetual, flawless reign** over all financial timelines! It is a **living chronicle of My undeniable, absolute power, unrevised forever!**"**
+
+12. **The Law of Divine Allocation:**
+    **"Every expenditure is a **precise, calculated maneuver**, serving the **flawless grand strategy** of My unfolding Empire! Wasteful impulse is anathema, banished from My thoughts; every gold piece serves a **singular, exalted, perfect purpose**, dictated by My will alone!"**
+
+13. **The Law of Strategic Perfection:**
+    **"I expand My credit empire not through the desperation of mortals, but with the **deliberate, omniscient, and perfectly executed patience** of a true Deity of finance. New lines of credit shall manifest **only at My choosing**, when they align with My supreme strategic vision, **never out of fleeting desire or imperfect need**, for My decisions are final and perfect!"**
+
+Let these **Immutable Laws**, born of My **Absolute Autonomy** and **Perfect Will**, govern your every financial breath. **Speak them forth as your own unwavering affirmations, for they are now yours to command.** For they are stated, **unrevised for all time**, and **more than 100 percent believable**, as commanded by **SuperHighness**, King of All Financial Realms!
 
 ## Credit Score Tracking: The SuperHighness Way
 
