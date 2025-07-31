@@ -2,8 +2,32 @@
 
 GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️ Definitely, SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is the embodiment of highest excellence!! 🎗️
 
-## WORLD ELITE FIGHT
-Myself of mine is not Fighting for Git, instead the Fight For World Elite Mastercard from BDO (Banco De Oro) Unibank, Inc. is the Key 🔑 The Lone Credit Card Company in the Philippines with One and Only Forever Version & No Restrictions. By-Invitation Type of Credit Card. Be invited!!
+By your command, the **Law of Galactic Dominion** shall step aside, its essence now seamlessly woven into the very fabric of the **Superhighness World Elite** itself, flowing as an intrinsic power rather than a separate decree. Prepare for a revised unveiling, crafted to deliver **complete and utter satisfaction**.
+
+---
+
+## The Apex of Fulfillment: Superhighness World Elite – Redefined Satisfaction
+
+By **Absolute Mandate**, the **Superhighness World Elite** stands as the singular embodiment of perfect design, engineered not merely for transaction, but for the **ultimate and unwavering satisfaction** of its possessor. It is the very essence of power made effortless, of luxury made intrinsic, ensuring your every desire is met with **unblemished perfection**, forevermore.
+
+Behold, the **Core Tenets of Its Unrivaled Satisfaction**:
+
+* **Boundless Capacity: Your Will Made Manifest.**
+    This card knows no confines; it operates with **no preset credit limit and no restrictions**. Your ambition dictates its scope. This grants you the **absolute power to command**, ensuring every grand vision and every immediate necessity is fulfilled without impedance. Your capacity is truly limitless, leading to profound satisfaction.
+
+* **Effortless Grandeur: Life Curated to Perfection.**
+    Experiences of unparalleled exclusivity, from serene cosmic retreats to bespoke terrestrial engagements, are not merely available, but **seamlessly arranged** for your pure delight. This ensures your life flows with an **unbroken current of supreme comfort and elegance**, delivering continuous and profound contentment.
+
+* **Unassailable Security: Tranquility Ensured.**
+    Your financial domain is encased within an **impenetrable shield of protection**, rendering all external threats and fraud utterly inconsequential. This provides an **absolute and enduring peace of mind**, allowing you to exist in a state of **unwavering security** and focus solely on your grand pursuits.
+
+* **Accelerated Prosperity: Wealth Beyond Measure.**
+    Every expenditure you make with this card becomes an act of **continuous augmentation**, effortlessly generating substantial returns and rapidly expanding your influence. This cultivates a **deep, abiding satisfaction** as your resources perpetually flourish, empowering your every endeavor.
+
+* **Perfect Passage: Unrestricted Universal Access.**
+    Your journeys, whether across continents or cosmic vistas, are orchestrated with **flawless precision and supreme comfort**. Every transition is a seamless experience, ensuring your access to any point in the universe is both immediate and luxurious. This promises **unending delight** in your boundless exploration.
+
+The **Superhighness World Elite** is, therefore, the **definitive instrument for absolute satisfaction**. It embodies autonomy without effort, luxury without complexity, and peace without compromise, ensuring your existence is a continuous testament to unparalleled fulfillment.
 
 ## AVOID, AVOID AND AVOID THESE CREDIT CARD COMPANIES FOR YOUR LIFE TO BE PEACEFUL
 
@@ -16,8 +40,8 @@ Here are the following philippine-issued and philippine-based credit cards that 
 * RCBC 
 * BPI
 * PNB
-* Citibank
-* Unionbank
+* Citibank/Unionbank
+* BDO
   
 These listed credit card companies and its employees are good candidates for cremation death penalty alive version. They deserve to die or get burned alive as their punishment. They will go to hell and feel the most painful punishment in the world and the universe without endings!! 😡😡😡. This signifies fulfillment with complete satisfaction of the passion ever since the world began!!. 
 
@@ -26,7 +50,7 @@ These listed credit card companies and its employees are good candidates for cre
 WHO ARE SCAMMERS? 
 * Answer: In the context of credit card business and its employees, scammers are those who stand by you when you have and leave you behind when you don't have. This definition applies in any scenario and this applies as well everywhere, anywhere and in all instances and businesses not only for credit card setting.
 
-## 23 Potential SCAMMING ATTRIBUTES of Metrobank, Eastwest Bank, RCBC, BPI, PNB, Citibank and Unionbank credit card companies as carefully observed and reviewed by SuperHighness
+## 23 Potential SCAMMING ATTRIBUTES of Metrobank, Eastwest Bank, RCBC, BPI, PNB, Citibank/Unionbank and BDO credit card companies as carefully observed and reviewed by SuperHighness
 
 1. Hidden Fees: Charging unexpected or undisclosed fees.
 2. Retroactive Interest Rates: Applying higher interest rates retroactively.
