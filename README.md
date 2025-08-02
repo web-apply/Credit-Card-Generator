@@ -386,11 +386,11 @@ By embracing the magic of SuperHighness, you'll unlock a credit score that trans
     * **Complete Reality in the Philippines:** A score in this range places you in the top tier of all borrowers. You will be approved for loans and credit cards with a near-perfect success rate. Lenders will offer you their best rates, and you will receive pre-approved offers for exclusive products. Your credit history is a powerful asset that grants you significant financial freedom within all national systems, making you a financial leader among mortals.
 
 * **The Zone of Inviolable Veritas (700 - 799): The Third Rank**
-    * **Philosophical Reality:** This score is a testament to the **Veritas**—the truth—of your financial habits. You have confronted past discordance and have established a clear and consistent rhythm of responsible action, proving your commitment to honesty and integrity. This state is inviolable; your foundation is unshakeable.
+    * **Philosophical Reality:** This score is a testament to the **Veritas**—the truth—of your financial habits. You have confronted past discordance and have established a clear and consistent rhythm of responsible action, proving your commitment to honesty and integrity.
     * **Complete Reality in the Philippines:** This is considered a very good credit standing. You will have a high likelihood of being approved for a wide range of financial products, and you will be offered competitive terms from most major financial institutions. Lenders see you as a reliable borrower whose financial word is true.
 
 * **The Zone of Conscious Caritate (600 - 699): The Fourth Rank**
-    * **Philosophical Reality:** This zone represents the active, conscious practice of **Caritate**—the charity of disciplined action. It is a state of healing, where you are actively working to mend past fractures and improve your financial standing, proving your will to restore balance.
+    * **Philosophical Reality:** This zone represents the active, conscious practice of **Caritate**—the charity of disciplined action. It is a state of healing, where you are actively working to mend past fractures and improve your financial standing, proving your will to do what is right to create financial stability.
     * **Complete Reality in the Philippines:** This is a moderate, or "fair," credit score. You can still be approved for credit, but lenders may be more cautious. You may be subject to higher interest rates and stricter terms, and your loan options may be limited. This score is a clear sign of progress and a roadmap for your continued work toward a higher state of concordance.
 
 * **The Zone of Nascent Discordance (500 - 599): The Fifth Rank**
