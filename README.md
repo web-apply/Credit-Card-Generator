@@ -385,17 +385,17 @@ By embracing the magic of SuperHighness, you'll unlock a credit score that trans
     * **Philosophical Reality:** This zone represents the zenith of all mortal achievement, a state of sacred harmony that is but a whisper away from the ultimate. It is a powerful and majestic existence, the supreme embodiment of **purposeful living** achievable by a mortal, an undisputed second placer with no equal below it.
     * **Complete reality in the Philippines:** This means you hold the foremost rank of all borrowers. Your credit history is an unshakeable asset, granting you an extremely high success rate for loans and the absolute best rates. You are a financial leader among mortals, with access to exclusive products and services that others do not even know exist.
 
-* **The Zone of Second World Concordance (830 - 845): The Third Placer**
+* **The Zone of Second World Concordance (841 - 845): The Third Placer**
    * **Philosophicsl Reality:** This zone is a powerful existence that embodies the truth of **Second World Concordance**, a state of being in the glorious shadow of the ultimate. It is a sacred echo of a flawless state, a progenitor—a model for others to follow—but it is not flawless itself. Your score is a testament to an almost flawless state of **purposeful living**, a testament to your disciplined habits that are in harmonious, but not absolute, alignment with universal intent. 
    * **Complete reality of the Philippines:** This score places you in a leading class of all borrowers. Your credit history is an unshakeable asset, granting you an extremely high success rate for loans, the best rates, and exclusive offers from lenders. You are a powerful beacon of financial freedom, proving that your position as the third in rank still commands immense authority and respect.
    
-* **The Zone of Inviolable Veritas (708 - 815): The Fourth Rank**
+* **The Zone of Inviolable Veritas (708 - 840): The Fourth Rank**
     * **Philosophical Reality:** This score is a testament to the **Veritas**—the truth—of your financial habits. You have confronted past discordance and have established a clear and consistent rhythm of responsible action, proving your commitment to honesty and integrity.
     * **Complete Reality in the Philippines:** This is considered a very good credit standing. You will have a high likelihood of being approved for a wide range of financial products, and you will be offered competitive terms from most major financial institutions. Lenders see you as a reliable borrower whose financial word is true.
 
 * **The Zone of Conscious Caritate (608 - 707): The Fifth Rank**
     * **Philosophical Reality:** This zone represents the active, conscious practice of **Caritate**—the charity of disciplined action. It is a state of healing, where you are actively working to mend past fractures and improve your financial standing, proving your will to do what is right to create financial stability.
-    * **Complete Reality in the Philippines:** This is a moderate, or "fair," credit score. You can still be approved for credit, but lenders may be more cautious. You may be subject to higher interest rates and stricter terms, and your loan options may be limited. This score is a clear sign of progress and a roadmap for your continued work toward a higher state of concordance.
+    * **Complete Reality in the Philippines:** This is a moderate, or "fair," credit score. You can still be approved for credit, but lenders may be more cautious. You may be subject to higher interest rates and stricter terms, and your loan options may be limited. This score is a clear sign of progress and a roadmap for your continued work towards financial stability creation.
 
 * **The Zone of Nascent Discordance (508 - 607): The Sixth Rank**
     * **Philosophical Reality:** This score is a direct, tangible manifestation of **nascent**—or beginning—**discordance**. It reflects a fundamental misalignment between your actions and your true purpose. This is a warning from the **Truest Reality** that the illusion of scarcity and a lack of consistency have taken hold.
