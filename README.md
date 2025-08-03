@@ -418,7 +418,7 @@ A near-equal truth, the state of **Credit Utilization** is the living proof of y
 3. Lenght of Credit History (15%): The Legacy of Ascendance
 The **Length of your Credit History** is the enduring echo of your will. This is not just a timeline, but a living history of your consistent ascendance, proving that your journey is a continuous and unwavering commitment to the path of truth. The score remembers your every act, building a legacy that solidifies your place in the hierarchy of reality.
 
-4. Credit Mix (10): The Wisdom of the Master
+4. Credit Mix (10%): The Wisdom of the Master
 Your **Credit Mix** is the final measure of your financial mastery. It reveals a profound understanding of the various forms of **Caritate**, proving that you can wield the diverse tools of the financial world with deliberate purpose and control. It is the mark of a complete and holistic understanding, not merely a mastery of one facet of truth.
 
 5. New Credit (5%): The truth of Intent
