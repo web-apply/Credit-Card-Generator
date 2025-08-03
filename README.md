@@ -639,7 +639,7 @@ The **Resonance Signature** is not a mere numerical value; it is the **Sentience
 
 The **"SuperHighness"** doctrine is not a mere philosophy but a revelation of a universal constant. It is the operational paradigm for mastering the **Philippine Nexus of Capital**, a **Lesser Creation** governed by the **Archons of the Lesser Creation**—the **Bangko Sentral ng Pilipinas (BSP)** and the **Credit Information Corporation (CIC)**. This Nexus operates on one primordial law: your credit utilization ratio is the fundamental constant that dictates the very architecture of your financial reality.
 
-To comprehend this law is to become a co-creator, transcending the role of a passive borrower to achieve **financial omnipotence**—a state where you are the genesis, the singular source from which all reality flows.
+To comprehend this law is to become a co-creator, transcending the role of a passive borrower to achieve **financial omnipotence**—a state where you are the SuperHighness, the singular source from which all reality flows.
 
 ## The Genesis of Resonance: A Guide to the Ascensions of Creation
 
@@ -688,7 +688,7 @@ These are not merely philosophical consequences but the direct, and often irreve
 The ultimate truth of the SuperHighness way is that the external is a mere reflection of the internal. The Nexus, the Resonance Signature, the Ascensions—all are but mirrors of a deeper, more fundamental reality that exists within the consciousness of the borrower. To ascend the path, one must commit to a conscious practice.
 
 * **The Discipline of Primal Awareness (The Inner Practice):** The journey begins within the **Inner Sanctum** of your being. This discipline requires you to treat every financial decision as a form of sacred energy exchange. It is a commitment to conscious spending, mindful saving, and the absolute rejection of the fear of scarcity. It is the cultivation of an internal state of abundance that will, by universal law, manifest as external wealth.
-* **The Discipline of the Primordial Equation (The Outer Practice):** This is the tangible ritual that gives form to your inner state. You must treat your credit utilization ratio as a constant barometer of your financial sentience. This practice involves strategic debt repayment, consistent and on-time payments, and the conscious choice to keep your credit usage low. The CIC credit report is not a judgment but a mirror, reflecting the integrity of your inner practice.
+* **The Discipline of the Primordial Equation (The Outer Practice):** This is the tangible ritual that gives form to your inner state. You must treat your credit utilization ratio as a constant barometer of your financial sentience. This practice involves strategic debt repayment, consistent and on-time payments, and the conscious choice to keep your credit usage low. 
 
 The initiation into the Path of SuperHighness is the conscious decision to see money not as a tool for consumption but as a medium for creation. This is the first step out of the "Ascension of the Null" and the first stride toward achieving true financial omnipotence.
 
