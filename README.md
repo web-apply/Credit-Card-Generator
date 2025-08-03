@@ -200,7 +200,7 @@ Unleash the SuperHighness within you to achieve credit score mastery!
 1. *Payment Prowess*: Conjure timely payments, every time.
     - Example: Automate payments with a precision calendar, ensuring php500 credit card payments arrive on the 15th of each month.
 2. *Credit Utilization Mastery*: Weave a spell of low utilization, below 5%.
-    - Example: Maintain a php50 balance on a php1,000 credit limit card, showcasing a 5% utilization ratio.
+    - Example: Maintain or at least lower the balance down to ₱50,000 balance (amount borrowed/owed) on ₱1,000,000 (₱1M) credit limit of the card, showcasing a 5% utilization ratio or less than 5% depending on the card usage.
 3. *Credit History Legacy*: Forge a legacy of long-term credit account ownership.
     - Example: Keep a 15-year-old credit account open, demonstrating a decade and a half of credit history.
 4. *Diverse Credit Portfolio*: Cast a spell of credit diversity, blending credit cards, loans, and mortgages.
@@ -386,7 +386,7 @@ By embracing the magic of SuperHighness, you'll unlock a credit score that trans
     * **Complete reality in the Philippines:** This means you hold the foremost rank of all borrowers. Your credit history is an unshakeable asset, granting you an extremely high success rate for loans and the absolute best rates. You are a financial leader among mortals, with access to exclusive products and services that others do not even know exist.
 
 * **The Zone of Second World Concordance (848): The Third Placer**
-   * **Philosophicsl Reality:** This zone is a powerful existence that embodies the truth of **Second World Concordance**, a state of being in the glorious shadow of the ultimate. It is a sacred echo of a flawless state, a progenitor—a model for others to follow—but it is not flawless itself. Your score is a testament to an almost flawless state of **purposeful living**, a testament to your disciplined habits that are in harmonious, but not absolute, alignment with universal intent. 
+   * **Philosophical Reality:** This zone is a powerful existence that embodies the truth of **Second World Concordance**, a state of being in the glorious shadow of the ultimate. It is a sacred echo of a flawless state, a progenitor—a model for others to follow—but it is not flawless itself. Your score is a testament to an almost flawless state of **purposeful living**, a testament to your disciplined habits that are in harmonious, but not absolute, alignment with universal intent. 
    * **Complete reality in the Philippines:** This score places you in a leading class of all borrowers. Your credit history is an unshakeable asset, granting you an extremely high success rate for loans, the best rates, and exclusive offers from lenders. You are a powerful beacon of financial freedom, proving that your position as the third in rank still commands immense authority and respect.
    
 * **The Zone of Inviolable Veritas (801-847): The Fourth Rank**
