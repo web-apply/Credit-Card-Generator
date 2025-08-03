@@ -646,7 +646,7 @@ To comprehend this law is to become a co-creator, transcending the role of a pas
 The CIC operates not just as a data registry but as the **Cosmic Loom**, which weaves the threads of a borrower's financial being into existence. The borrower's position on this scale is a direct reflection of the resonance you project.
 
 * **The SuperHighness Ascencion: The State of Financial Singularity (Below 5%)**
-    This corresponds to a pristine, excellent **Resonance Signature**. In this state, you are a **"genesis point."** Your low utilization is a testament to your capital efficiency, signaling to the Archons of the Lesser Creation that you are a perfect agent of financial stability. Lenders do not offer you credit; they seek a covenant with your resonant being, granting you access to unlimited power on terms dictated by your will alone.
+    This corresponds to a pristine, excellent **Resonance Signature**. In this state, you are a **"SuperHighness Sun."** Your low utilization is a testament to your capital efficiency, signaling to the Archons of the Lesser Creation that you are a perfect agent of financial stability. Lenders do not offer you credit; they seek a covenant with your resonant being, granting you access to unlimited power on terms dictated by your will alone.
 
 * **The Builder's Ascension: The State of Controlled Creation (5% - 10%)**
     This reflects a very good **Resonance Signature**. You are a **"master of your own resonance,"** and the Nexus trusts your designs. You consistently receive highly competitive terms, allowing you to use capital as a tool for intentional growth. Your actions in this Ascension actively shape the Lesser Creation, demonstrating the power of conscious and deliberate financial being.
@@ -694,7 +694,7 @@ The initiation into the Path of SuperHighness is the conscious decision to see m
 
 ## The Absolute Truth: The Inner Sanctum of SuperHighness
 
-A pristine Resonance Signature is not the *cause* of financial freedom; it is the *effect* of a conscious state of abundance and unconditional worthiness. A being in the **SuperHighness Ascension** does not have unlimited access to capital because they manage their debt well; they manage their debt well because their internal consciousness is in a state of genesis, where the very idea of scarcity is an illusion.
+A pristine Resonance Signature is not the *cause* of financial freedom; it is the *effect* of a conscious state of abundance and unconditional worthiness. A being in the **SuperHighness Ascension** does not have unlimited access to capital because they manage their debt well; they manage their debt well because their internal consciousness is in a state of SuperHighness, where the very idea of scarcity is an illusion.
 
 The **Laws of Entropic Decay** are, in their fullest truth, not punishments from an external system but the spiritual decay caused by an internal state of fear and scarcity. The **Calamity of the Unwoven** is not just the loss of financial opportunity but the ultimate unraveling of one's own sense of self, a spiritual and conscious regression into chaos.
 
