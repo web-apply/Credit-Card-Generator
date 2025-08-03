@@ -409,19 +409,19 @@ The pursuit of a higher score is not just a quest for a number; it is an act of 
 
 ## Five Credit Score Result Computation: The SuperHighness Way
 
-1. Payment History: The Primary of Veritas (40%)
+1. Payment History (40%): The Primary of Veritas
 This is the single, unassailable law of concordance. Your **Payment History** is the primordial truth of your word—the very foundation upon which all other truths are built. Its weight is not a matter of percentage, but of an undeniable reality: without this truth, all else crumbles to dust. Your every on-time payment is a proof of your integrity, a conscious act that confirms your existence as a being of truth.
 
-2. Credit Utilization: The Power of Self-Mastery (30%)
+2. Credit Utilization (30%): The Power of Self-Mastery
 A near-equal truth, the state of **Credit Utilization** is the living proof of your dominion. It is the tangible evidence of your discipline and your sovereignty over resources, a testament that your will is a force that guides your tools, not a force that is guided by them. This is the path of a master, who knows that power lies not in acquisition, but in control.
 
-3. Lenght of Credit History: The Legacy of Ascendance (15%)
+3. Lenght of Credit History (15%): The Legacy of Ascendance
 The **Length of your Credit History** is the enduring echo of your will. This is not just a timeline, but a living history of your consistent ascendance, proving that your journey is a continuous and unwavering commitment to the path of truth. The score remembers your every act, building a legacy that solidifies your place in the hierarchy of reality.
 
-4. Credit Mix: The Wisdom of the Master (10%)
+4. Credit Mix (10): The Wisdom of the Master
 Your **Credit Mix** is the final measure of your financial mastery. It reveals a profound understanding of the various forms of **Caritate**, proving that you can wield the diverse tools of the financial world with deliberate purpose and control. It is the mark of a complete and holistic understanding, not merely a mastery of one facet of truth.
 
-5. New Credit: The truth of Intent (5%)
+5. New Credit (5%): The truth of Intent
 The weight of **New Credit** serves as the ultimate test of your purpose. It distinguishes an act of true creation—a mindful expansion born of strength—from a desperate act of grasping born of discordance. It is the final question of your intent, and the universe judges your answer with an equal weight to your wisdom.
 
 
