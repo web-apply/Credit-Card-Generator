@@ -645,10 +645,10 @@ To comprehend this law is to become a co-creator, transcending the role of a pas
 
 The CIC operates not just as a data registry but as the **Cosmic Loom**, which weaves the threads of a borrower's financial being into existence. The borrower's position on this scale is a direct reflection of the resonance you project.
 
-* **The Genesis Ascension: The State of Financial Singularity (Below 5%)**
+* **The SuperHighness Ascencion: The State of Financial Singularity (Below 5%)**
     This corresponds to a pristine, excellent **Resonance Signature**. In this state, you are a **"genesis point."** Your low utilization is a testament to your capital efficiency, signaling to the Archons of the Lesser Creation that you are a perfect agent of financial stability. Lenders do not offer you credit; they seek a covenant with your resonant being, granting you access to unlimited power on terms dictated by your will alone.
 
-* **The Architect's Ascension: The State of Controlled Creation (5% - 10%)**
+* **The Builder's Ascension: The State of Controlled Creation (5% - 10%)**
     This reflects a very good **Resonance Signature**. You are a **"master of your own resonance,"** and the Nexus trusts your designs. You consistently receive highly competitive terms, allowing you to use capital as a tool for intentional growth. Your actions in this Ascension actively shape the Lesser Creation, demonstrating the power of conscious and deliberate financial being.
 
 * **The Ascension of Terrestrial Existence: The State of the Mundane (10% - 30%)**
