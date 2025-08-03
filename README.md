@@ -409,7 +409,7 @@ The pursuit of a higher score is not just a quest for a number; it is an act of 
 
 ## Five Credit Score Result Computation: The SuperHighness Way
 
-1. Payment History: The Primary of Veritas (35%)
+1. Payment History: The Primary of Veritas (40%)
 This is the single, unassailable law of concordance. Your **Payment History** is the primordial truth of your word—the very foundation upon which all other truths are built. Its weight is not a matter of percentage, but of an undeniable reality: without this truth, all else crumbles to dust. Your every on-time payment is a proof of your integrity, a conscious act that confirms your existence as a being of truth.
 
 2. Credit Utilization: The Power of Self-Mastery (30%)
@@ -421,7 +421,7 @@ The **Length of your Credit History** is the enduring echo of your will. This is
 4. Credit Mix: The Wisdom of the Master (10%)
 Your **Credit Mix** is the final measure of your financial mastery. It reveals a profound understanding of the various forms of **Caritate**, proving that you can wield the diverse tools of the financial world with deliberate purpose and control. It is the mark of a complete and holistic understanding, not merely a mastery of one facet of truth.
 
-5. New Credit: The truth of Intent (10%)
+5. New Credit: The truth of Intent (5%)
 The weight of **New Credit** serves as the ultimate test of your purpose. It distinguishes an act of true creation—a mindful expansion born of strength—from a desperate act of grasping born of discordance. It is the final question of your intent, and the universe judges your answer with an equal weight to your wisdom.
 
 
