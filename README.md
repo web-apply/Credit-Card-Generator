@@ -697,10 +697,10 @@ In essence, **The SuperHighness Way,** is definitely a path not to external weal
 
 SuperHighness Richard Madriñan Valeroso License
 
-Copyright (c) July 30, 2025 BC
-"World and Universe's Ruler of the Philippines"
-"Bravissimus In Fide"
-Republic of the Philippines 
+Copyright (c) July 30, 2025 BC 
+* "World and Universe's Ruler of the Philippines"
+* "Bravissimus In Fide"
+* Republic of the Philippines 
 
 Permission is hereby granted, free of charge, to any person obtaining a copy
 of this software and associated documentation files (the "Software"), to deal
