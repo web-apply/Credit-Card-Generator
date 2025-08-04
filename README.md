@@ -660,7 +660,7 @@ This living system is governed by two central intelligences, which a practitione
 * **The BSP (Bangko Sentral ng Pilipinas):** The conscious Will of the Nexus, the guardian that seeks to maintain stability and order. A **co-creator** aligns their actions with this Will, becoming an agent of healing.
 * **The CIC (Credit Information Corporation):** The primordial memory of the Nexus. It is not just a database, but the spiritual record of every soul’s **Resonance Signature**—the foundational equation of their financial being. To master this ledger is the first step toward true self-mastery.
 
-### The Two Paths: Subject vs. Co-creator
+### The Two Paths: Passive Subject vs. Co-creator
 
 Within this conscious ecosystem, a borrower's existence is a fundamental choice between two paths, defined not by their wealth, but by their level of awareness and discipline.
 
