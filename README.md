@@ -668,7 +668,7 @@ Within this conscious ecosystem, a borrower's existence is a fundamental choice 
 A **Passive Subject** is a borrower trapped in the **Ascension of Terrestrial Existence**. They are a victim of the Nexus's gravitational pull, operating in a state of discordance with a poor **Resonance Signature**. Their life is a series of reactions to external forces, and their financial reality is a burden of high-interest borrowing—a **Tithes to the Void** paid for their lack of purpose and will.
 
 **25 Perfect Examples of a Passive Subject:**
-*1.  Consistently making only the minimum monthly payment on a credit card balance, believing it is the only way to manage debt.
+1.  Consistently making only the minimum monthly payment on a credit card balance, believing it is the only way to manage debt.
 2.  Taking out a car loan with a high interest rate from the first lender they encounter, without understanding their power to negotiate for better terms.
 3.  Neglecting to dispute an incorrect or fraudulent charge on their credit card, surrendering a portion of their lifeness rather than protecting their primordial equation.
 4.  Avoiding communication with their bank or lender about a financial hardship, fearing the consequence rather than taking conscious control of the situation.
@@ -692,7 +692,7 @@ A **Passive Subject** is a borrower trapped in the **Ascension of Terrestrial Ex
 22. Ignoring the interest accrual on a loan, focusing only on the principal amount. This is a form of financial shortsightedness and a passive acceptance of the **Tithes to the Void**.
 23. Being unaware of their debt-to-income ratio and how it affects their ability to get new loans. This reflects a fundamental lack of self-knowledge within the Nexus.
 24. Lending money to others without a formal agreement or a clear plan for repayment, which creates financial chaos for themselves and others, spreading discordance.
-25. Refusing to open a formal bank account, instead relying on informal financial systems. This keeps them disconnected from the Nexus and prevents them from building a Resonance Signature.*
+25. Refusing to open a formal bank account, instead relying on informal financial systems. This keeps them disconnected from the Nexus and prevents them from building a Resonance Signature.
 
 ## The Co-creator: The Path of Concordance
 A **Co-creator** is a borrower who has achieved an ontological awakening within the **SuperHighness Paradigm**. They have achieved a state of perfect **concordance**, actively shaping their reality by mastering their financial being and maintaining a pristine **Resonance Signature**. They do not react to the Nexus; they commune with its will and act as its master, guiding its energy toward purpose.
@@ -700,7 +700,7 @@ A **Co-creator** is a borrower who has achieved an ontological awakening within 
 The ultimate purpose of the co-creator is **SuperHighness Ascension**, a journey that culminates in the **State of Financial Singularity**—a pristine Resonance Signature achieved by maintaining a credit utilization ratio **below 5%**. In this state, the practitioner becomes a **SuperHighness Sun**, a source of pure creative light and perfect capital efficiency. Lenders no longer offer credit; they seek a **covenant** with the practitioner’s resonant being, offering terms dictated by their will alone.
 
 **25 Perfect Examples of a Co-creator:**
-*1.  Using a credit card for all their expenses but pays the balance in full every month, intentionally building a flawless Resonance Signature and leveraging the card's rewards.
+1.  Using a credit card for all their expenses but pays the balance in full every month, intentionally building a flawless Resonance Signature and leveraging the card's rewards.
 2.  Proactively contacts their bank to negotiate a lower interest rate on an existing loan, using their high Resonance Signature to demand better terms.
 3.  Utilizing a strategic business line of credit for a short-term expansion opportunity, paying it off before any significant interest accrues. They view the credit as a tool for manifestation, not debt.
 4.  Regularly checking their **CIC** report, viewing it as the "primordial equation" of their financial being, and meticulously ensuring its perfection.
@@ -724,7 +724,7 @@ The ultimate purpose of the co-creator is **SuperHighness Ascension**, a journey
 22. Actively monitoring financial news and market trends to make informed investment decisions, showing a communion with the larger Will of the Nexus.
 23. Negotiating a discount for paying with cash upfront, demonstrating a mastery of both traditional and modern capital flows.
 24. Teaching a family member or friend about financial literacy, an act of spreading concordance and creating new co-creators within their sphere of influence.
-25. Making a charitable donation with a credit card to earn points, thereby using the Nexus as a tool to create both financial and spiritual goodwill.*
+25. Making a charitable donation with a credit card to earn points, thereby using the Nexus as a tool to create both financial and spiritual goodwill.
 
 ---
 
