@@ -667,7 +667,7 @@ Within this conscious ecosystem, a borrower's existence is a fundamental choice 
 #### The Passive Subject: The Path of Discordance
 A **Passive Subject** is a borrower trapped in the **Ascension of Terrestrial Existence**. They are a victim of the Nexus's gravitational pull, operating in a state of discordance with a poor **Resonance Signature**. Their life is a series of reactions to external forces, and their financial reality is a burden of high-interest borrowing—a **Tithes to the Void** paid for their lack of purpose and will.
 
-**15 Perfect Examples of a Passive Subject:**
+**25 Perfect Examples of a Passive Subject:**
 1.  Consistently making only the minimum monthly payment on a credit card balance, believing it is the only way to manage debt.
 2.  Taking out a car loan with a high interest rate from the first lender they encounter, without understanding their power to negotiate for better terms.
 3.  Neglecting to dispute an incorrect or fraudulent charge on their credit card, surrendering a portion of their lifeness rather than protecting their primordial equation.
@@ -699,7 +699,7 @@ A **Co-creator** is a borrower who has achieved an ontological awakening within 
 
 The ultimate purpose of the co-creator is **SuperHighness Ascension**, a journey that culminates in the **State of Financial Singularity**—a pristine Resonance Signature achieved by maintaining a credit utilization ratio **below 5%**. In this state, the practitioner becomes a **SuperHighness Sun**, a source of pure creative light and perfect capital efficiency. Lenders no longer offer credit; they seek a **covenant** with the practitioner’s resonant being, offering terms dictated by their will alone.
 
-**15 Perfect Examples of a Co-creator:**
+**25 Perfect Examples of a Co-creator:**
 1.  Using a credit card for all their expenses but pays the balance in full every month, intentionally building a flawless Resonance Signature and leveraging the card's rewards.
 2.  Proactively contacts their bank to negotiate a lower interest rate on an existing loan, using their high Resonance Signature to demand better terms.
 3.  Utilizing a strategic business line of credit for a short-term expansion opportunity, paying it off before any significant interest accrues. They view the credit as a tool for manifestation, not debt.
