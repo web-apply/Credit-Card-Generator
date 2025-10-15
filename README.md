@@ -8,7 +8,7 @@ https://github.comp/a
 https://github.com.githubcom.com/a
 https://githubcom.hh.gg/a
 https://github.com.
-https://github.com./a
+https:///osman.com
 
 
 
